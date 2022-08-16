@@ -44,9 +44,9 @@ Video Checking On Atom X Bitcoin Pro Version : [ [VIDEO PRO Version](https://git
 
 WebSite: [MMDRZA.COM](https://mmdrza.com)
 
-Telegram ID : [@PyMmdrza](https://t.me/PyMmdrza)
+Telegram ID : [@PyMmdrza](https://t.me/MrPyMmdrza)
 
-Telegram Channel : [@mPython3](https://t.me/mPython3)
+Telegram Channel : [@mPython3](https://t.me/MrPyMmdrza)
 
 ***Order only through the announced communication channels. There are other fraudsters who claim to have our software, but unfortunately these thieves are hungry poor people who need very small amounts to steal from you and after paying a They will give you scripts containing viruses or they will not give you anything, they will block you. (These items have been reported a lot, please be careful not to be deceived by the low price). All our scripts have a license and password, and no unauthorized person can use it or give it to others.***
 ---
